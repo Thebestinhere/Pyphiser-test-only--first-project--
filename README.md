@@ -18,3 +18,7 @@ Thank you all for your support and encouragement on this exciting journey. I loo
 Warm regards,
 
 Group 020020
+
+
+
+Contact: midiscordfuebaneadoxd@gmail.com
